@@ -1,4 +1,4 @@
-# All About Cananda (Last update:6/21/2019 6:24:55 PM)
+# All About Cananda (Last update:6/29/2019 11:42:20 PM)
 📢 The real Canada！🔔
 
 
@@ -25,4 +25,16 @@
 
 
 
+### 加拿大中文旅行社
 
+途风旅游    
+🚪 https://cn.toursforfun.com/
+
+天宝旅行团    
+🚪 https://www.tianbaotravel.com/
+
+大班旅游    
+🚪 http://www.taipantours.com/Home/Index
+
+​泰安旅游    
+🚪 https://safewaytours.net/
